@@ -1,4 +1,4 @@
-
+Enhance your Mullvad experience with ultra-secure Mullvad Addon | kill-switch + VPN-over-TOR, the #1 addon. Includes kill-switch and VPN-over-TOR for a safer and more private
 
 
 
